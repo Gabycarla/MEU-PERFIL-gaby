@@ -1,6 +1,6 @@
 # MEU-PERFIL-gaby
 MINHAS INFORMAÇÕES
-- # GABRIELY CARLA #
+- # gabriely carla #
 - **IDADE** : 16 🫀
 - **CIDADE** : General Salgado - SP
 - **SIGNO** : Aquariana nata
